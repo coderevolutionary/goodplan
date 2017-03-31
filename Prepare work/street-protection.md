@@ -4,9 +4,9 @@
 Для того, чтобы защитить свои органы дыхания, при себе необходимо **всегда** иметь следующий перечень вещей.
 * Маленькая бутылочка с водой (а лучше две)
 * Платок (который хорошо впитывает воду, если его промочить)
-* Распиратор или противогаз, лучший вариант - распиратор с <a href="https://ru.aliexpress.com/item/Hot-Sell-High-Quality-Dual-Anti-Dust-Spray-Paint-Industrial-Chemical-Gas-Respirator-Mask-Glasses-Set/32617795112.html?spm=2114.10010208.1000014.3.lsMxrh&scm=1007.13338.78123.000000000000000&pvid=b52d89cf-9999-4a1f-b247-a381a5fbd553&tpp=1" target="_blank">защитой глаз</a>
+* Распиратор или противогаз, лучший вариант - распиратор с [защитой глаз](https://ru.aliexpress.com/item/Hot-Sell-High-Quality-Dual-Anti-Dust-Spray-Paint-Industrial-Chemical-Gas-Respirator-Mask-Glasses-Set/32617795112.html?spm=2114.10010208.1000014.3.lsMxrh&scm=1007.13338.78123.000000000000000&pvid=b52d89cf-9999-4a1f-b247-a381a5fbd553&tpp=1)
 * Очки защитные или для плавания (не уверен, что лыжные подойдут, ведь они пропускают воздух)
-* Сумка на пояс, где все это можно хранить и оперативно достать (*<a href="http://motofairy.ru/products_pictures/sumka-na-poyas-dainese-marsupio-101-B.jpg" target="_blank">распиратор и очки</a>, думаю, стоит хранить хорошо закрепленными на поясе, а в сумке - воду с платком*)
+* Сумка на пояс, где все это можно хранить и оперативно достать (*[распиратор и очки](http://motofairy.ru/products_pictures/sumka-na-poyas-dainese-marsupio-101-B.jpg), думаю, стоит хранить хорошо закрепленными на поясе, а в сумке - воду с платком*)
 
 
 ## Защита тела
